@@ -1,1 +1,1 @@
-# choushignon-AI-Copywriter
+# AI-Freelancing
